@@ -1,2 +1,2 @@
-# neducator.com
+# neducator.io
  NAVODAYAN EDUCATOR
